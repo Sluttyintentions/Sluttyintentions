@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Sluttyintentions
+- 👀 I’m interested in - black guys
+- 🌱 I’m currently learning - new things
+- 💞️ I’m looking to collaborate on - whatever 
+- 📫 How to reach me - leave me a comment or someway
+- 😄 Pronouns: He, him, his
+- ⚡ Fun fact: Im a creamer. I love to be dominated
